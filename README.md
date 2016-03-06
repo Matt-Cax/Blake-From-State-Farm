@@ -1,1 +1,0 @@
-# Blake-From-State-Farm
